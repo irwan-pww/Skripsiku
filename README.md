@@ -1,0 +1,2 @@
+# Skripsiku
+Repo skripsi saya 
